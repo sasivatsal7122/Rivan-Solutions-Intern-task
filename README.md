@@ -1,1 +1,0 @@
-# Rivan-Solutions-Intern-task
